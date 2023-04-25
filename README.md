@@ -1,4 +1,4 @@
-[![MasterHead](https://media.tenor.com/jx8nav4P19AAAAAd/shizuo-anime.gif)
+![MasterHead](https://media.tenor.com/jx8nav4P19AAAAAd/shizuo-anime.gif)
 
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/iU20sXcBKOAAAAAM/anime-die.gif">
 
