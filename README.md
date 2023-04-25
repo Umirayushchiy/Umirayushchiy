@@ -1,8 +1,9 @@
 ![MasterHead](https://media.tenor.com/jx8nav4P19AAAAAd/shizuo-anime.gif)
 
-<img align="right" alt="Coding" width="400" src="https://media.tenor.com/iU20sXcBKOAAAAAM/anime-die.gif">
+<img align="right" alt="Coding" width="200" src="https://media.tenor.com/iU20sXcBKOAAAAAM/anime-die.gif">
+<h4 align="right">just dying</h4>
+<h4 align="center">life is so fkn boring </h4>
 
-<h3 align="center">just dying</h3>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
